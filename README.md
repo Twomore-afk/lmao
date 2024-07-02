@@ -1,3 +1,3 @@
-# lmao
+# ftípešky
 test
-# fk this shit
+# yippee!
